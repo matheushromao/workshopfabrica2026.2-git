@@ -1,0 +1,1 @@
+# workShopFabrica2026.2-git
